@@ -1,7 +1,3 @@
-<a href="https://rmobile-campaign.com/">https://rmobile-campaign.com/</a>
-
-
-<a href="https://personalgym-realbody.com/">https://personalgym-realbody.com/</a>
 
 <a href="https://usa-bestdeals.com ">usabest</a>
 <a href="https://rstsoft.net ">rstsoft</a>
