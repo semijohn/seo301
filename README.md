@@ -9,6 +9,4 @@
 <a href="https://flixexpo.com">https://flixexpo.com</a>
 
 
-<a href="https://winrating.ru">https://winrating.ru</a>
-
 
