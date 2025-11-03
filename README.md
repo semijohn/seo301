@@ -2,9 +2,5 @@ Sure! SEO (Search Engine Optimization) is the process of improving a website or 
 
 
 
-<a href="https://golinder.com">https://toxirium.com/</a>
-<a href="https://blueloungebar.com">https://golinder.com</a>
-<a href="https://ideasforlifepaint.com">https://blueloungebar.com</a>
-<a href="https://lenishome.com/en">lenishome.com/en</a>
-<a href=""></a>
+<a href="https://www.encryptionconsulting.com">https://www.encryptionconsulting.com</a>
 
